@@ -1,5 +1,5 @@
 Privacy Policy
-built the Кето диета с рецептами и меню на неделю app as a Free app. This SERVICE is provided by at no cost and is intended for use as is.
+Myata built the Кето диета с рецептами и меню на неделю app as a Free app. This SERVICE is provided by at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
